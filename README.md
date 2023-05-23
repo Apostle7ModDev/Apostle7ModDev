@@ -1,0 +1,4 @@
+- Hi ,i'm one of a creators of the mod Peregrination
+- Its only on start of working
+- we have some issues
+- But i promise ,we'll get better
